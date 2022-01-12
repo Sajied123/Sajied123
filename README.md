@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sajied123
+- 👀 I’m graduate and done my BSc in Information Technology
+- 💞️ I’m looking for new oppotinites
+- 📫 You can reach me at sajiedahmed4@gmail.com
